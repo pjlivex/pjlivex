@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @pjlivex
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning plus two computer science
+- 📫 How to reach me ...INSTAGRAM- @pj_live_x
